@@ -1,1 +1,1 @@
-A workshop by NTU CAO
+A workshop
